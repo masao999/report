@@ -1,4 +1,4 @@
-# PROFESSIONAL SCRUM MASTER™ II 受験記
+# Professional Scrum Master™ II 受験記
 
 https://www.scrum.org/professional-scrum-master-ii-certification
 
